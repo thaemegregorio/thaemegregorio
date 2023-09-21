@@ -12,4 +12,4 @@ Thaeme.ferro.santos@escola.pr.gov.br
 
 @Thaemegregorio
 
-![](https://media.tenor.com/IXTbkdWQFsgAAAAC/powerpuff-girls.gif)https://media.tenor.com/IXTbkdWQFsgAAAAC/powerpuff-girls.gif)
+![](https://media.tenor.com/IXTbkdWQFsgAAAAC/powerpuff-girls.gif)
