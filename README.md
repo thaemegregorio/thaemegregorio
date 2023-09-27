@@ -2,7 +2,7 @@
 
 Meu nome é Thaeme Gregorio
 
-- Estou estudando no [Alura]
+- Estou estudando no [Alu]ra]
 - Estou me desenvolvendo na linguagem javaScript
 - Utilizo desse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
