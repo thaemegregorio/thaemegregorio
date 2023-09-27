@@ -14,7 +14,7 @@ Thaeme.ferro.santos@escola.pr.gov.br
 
 ![](https://media.tenor.com/IXTbkdWQFsgAAAAC/powerpuff-girls.gif)
 
-- Eu gosto de tirar um tempo para mim ficar na natureza 🌳, ler,ver fotos e produtos de beleza.
+- Eu gosto de tirar um tempo para mim ficar na natureza 🌳, ler,ver fotos e produtos de beleza 💅.
 - Tenho 15 anos e vou fazer 16 dia 20 de novembro, nasci em São Paulo.
 - Memórias são especiais para mim  💜
 
